@@ -14,6 +14,6 @@ Mapache Salvage
 
 ## Swag 
 
-100% of the profits from swag sales goes to payin for meetup pages, rent, and supplies. You can check out the store here: 
+100% of the profits from swag sales goes to paying for meetup pages, rent, and supplies. You can check out the store here: 
 <https://www.redbubble.com/people/TrashPandaSec/> 
 
